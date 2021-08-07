@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Borfashul ; Borfashul.eu ; Borfashul.org 
+- 👋 Hi, I’m @Borfashul ; http://Borfashul.eu ; http://Borfashul.org 
 - 👀 I’m interested in Web design ...
 - 📫 You can reach me on www.NicolaeMirceaPopa.com
 
